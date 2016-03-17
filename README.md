@@ -11,4 +11,4 @@ slettes på senere tidspunkt
 
 også kan man legge til kommentarbokser?
 
-
+Ja no har eg lagt til litt meir her
